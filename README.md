@@ -5,7 +5,7 @@
 - 👽 I have worked on many projects in the company and as a freelancer!
 
 
-<h3 align="center">AZKADEV || GIBRAN ALAZKA</h3>
+<h3 align="center">SHOHRUH || UZEBKISTAN</h3>
 
 ![](https://user-images.githubusercontent.com/38845275/128774296-40a55843-1893-44e6-936e-5e71c7cf72de.png)
 
